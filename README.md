@@ -2,7 +2,7 @@
 
 ## Best Mines Predictor with the highest guess rate (NOT patched)
 
-## TO PURCHAES JOIN THE [DISCORD](https://discord.gg/ZvDzeVk8Wh)
+## TO PURCHASE JOIN THE [DISCORD](https://discord.gg/ZvDzeVk8Wh)
  
 ![adz](https://i.imgur.com/05reUWw.png)
 
